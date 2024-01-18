@@ -1,0 +1,1 @@
+You grab the cure without hesitation and offer yourself to be the one to detonate it.  You let it off and it kills every one of the basketballs and everybody and the world is saved, but you have died.  You do not regret your decision, and you become the town hero and savior for all of time and is honored every day.
