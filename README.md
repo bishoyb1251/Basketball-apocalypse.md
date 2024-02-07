@@ -6,4 +6,4 @@
 
 ## This is a link to [Bishoy's](https://github.com/bishoyb1251) profile and [Andre's](https://github.com/andrep8376) profile.
 
-## Click [here](stayingupmain/stayingup2.md) to begin your journey, during the BASKETBALL APOCALYPSE
+## Click [here](stayingupmain/stayingup.md) to begin your journey, during the BASKETBALL APOCALYPSE
